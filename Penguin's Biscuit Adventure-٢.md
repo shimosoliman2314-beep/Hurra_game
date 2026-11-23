@@ -1,0 +1,25 @@
+![Academy logo](assets/logo.jpg)
+
+Welcome
+
+# Penguin's Biscuit Adventure
+
+A cute penguin in a rainbow scarf
+
+Learn the sounds بِ · بِسْ · مِ
+
+Are you ready to play?
+
+The penguin waves hello
+
+Listen!
+
+1
+
+2
+
+3
+
+بِسْمِ
+
+You built the word!
